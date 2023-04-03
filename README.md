@@ -1,0 +1,2 @@
+# BD-BOMBER
+FREE BUT Permission ADMIN. THAN USE
